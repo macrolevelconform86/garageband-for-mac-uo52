@@ -1,4 +1,4 @@
-# 
+# GarageBand for macOS professional Effect: cloud-sync & 4K-export offers the most advanced GarageBand for macOS effect, with cloud-sync and 4K-export. Ideal for professional video
 
 
 
